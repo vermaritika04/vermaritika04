@@ -6,7 +6,8 @@ Faridabad, Haryana, India
 
 ✉️ vermaritika3969@gmail.com
 
-🔗 LinkedIn: vermaritika04 
+🔗 LinkedIn: www.linkedin.com/in/vermaritika04
+ 
 
 🐙 GitHub: vermaritika04
 
