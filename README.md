@@ -2,8 +2,6 @@ RITIKA VERMA
 
 Faridabad, Haryana, India
 
-📱 +91 9426153928 
-
 ✉️ vermaritika3969@gmail.com
 
 🔗 LinkedIn: www.linkedin.com/in/vermaritika04
